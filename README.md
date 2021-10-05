@@ -1,0 +1,2 @@
+# aiti
+simpan jangan lupa
